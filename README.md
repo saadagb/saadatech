@@ -1,0 +1,2 @@
+# saadatech
+all technology ideas
